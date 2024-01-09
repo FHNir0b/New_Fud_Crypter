@@ -36,8 +36,8 @@ Welcome to the realm of undetectable Fud Me NC Crypter.! Below, you'll find all 
 ## Our All Telegram Networks:
 - 🌐 [Hacking and Cracking Channels](https://t.me/OurAllNetwork)
 
-## Watch on YouTube:
-- 🎥 [Fud Me NC Crypter Demo](https://youtu.be/8iz7ASI8daM)
+## Watch on YouTube Demo video:
+- 🎥 [Fud Me NC Crypter Demo video](https://youtu.be/8iz7ASI8daM)
 
 # Virus Scan
 - 🦠 [Virus Scan](https://virusscan.jotti.org/en-US/filescanjob/m82teor3oc)
